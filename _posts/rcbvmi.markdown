@@ -1,0 +1,109 @@
+---
+layout: post
+title:  "Welcome to Jekyll!"
+date:   2021-04-10 15:50:23 +0530
+categories: jekyll update
+---
+At around 7:15, I just got out of a high intensity college quiz just to realise RCB won the toss, Kohli winning the toss, how rare is that??? Jokes aside, RCB won the toss and chose to field, it wasn't the decision the commentators liked the most, they thought it would be better of fielding. Now the thing, the match is happening in Chennai, there is always chance of dew, also Mumbai has always struggled, not won the first game for a long long time, so putting them to bat was actually a pretty smart move. Lets start talking about the game.
+![chaliye shuru karte hain](https://i.imgur.com/CIIc4te.jpg){width=50%}
+
+Lets talk about the selection, the thing is Kohli loves Saini and it wouldn't have been a wrong assumtion that he would have played but that was not the case, Harhsal Patel the man who was traded was playing the first game, I absolutely love that guy, he even played for RCB before, so it was more like a homecoming. MI went on to bring in Marco Jansen instead of normal choice NCN, it also maybe because of the love MI has for left arm seamers. RCB even chose to play Rajat Patidar, that man has been brilliant in the practice matches. 
+
+
+QDK was in quarantine which meant LYNNSANITY was getting his debut for MI. You would expect Virat to start with a spinner given Lynn struggles a lot and Rohit in the recent past has struggled to pick the line.
+Well that really didn't happen with Virat starting with Siraj, but that wasn't a bad move with RCB pacers being brilliant at the start.
+
+RCB started absolutely incredibly, they gave away only 12 runs in the first three overs. In the third over, Sharma ji played a brilliant shot but it looked like it almost went to hands of Jamieson, not his fault though, Jamieson is a 6'8 beast.
+For the fourth over, Kohli decided to go with Chahal, it wouldn't have been the obvious choice of anybody. Chahal is the frontiline middle overs bowlers and has won many games for RCB that way and I intend to see him being used in that way, its not like they didn't have option, Jamieson is a really good power play bowler, Siraj is too and they also have the greatest of them all Sundar.
+He got smoked for 12 runs in the first 5 balls but that doesn't mean there wasn't a silver lining, there obviously was which was a mixup causing Rohit to get run out. Really an unfortunate event, but a success nevetheless.
+![wicket is wicket](https://i.imgur.com/jp4A1Ba.jpg){width=30%}
+
+One of the thing Surya Kumar Yadav has done 6 times in the last 11 times he has batted is start the innnings with a boundary. So when Jamieson bolwed to SKY, it would've been a nice assumption that he would start with that and boy oh boy he did, it was absolutely an incredible shot. The main sterngth of Chris Lynn is his powerplay hitting, he is extremely destructive but he still had not come to his own, maybe the pitch played a role, maybe the line and length of balls were pitch perfect. MI were 30/1 at end of 5 overs which is not really the best stage to be in, but it is what it is.
+If one over of smashing was not enough Kohli brought in Chahal again, **I am sorry but using your best middle overs bowler in a totally differnt place where you know he is not as effective is not really the thing I am into**, it caused a glimpse of LYNNSANITY with a massive siz.
+![sad face](https://i.imgur.com/RoxIttP.jpg)
+
+That 11 run over kind of started a run flow, Virat brouhgt Shahbaz for 7th over, finally!! But by that time LYNN was already ready to smash anything and everything around him. That over costed us 14 runs.
+Now they were in full flow, MI accumilated 42 runs after the pwoerplay in just 3 over which is jut insane!!
+SKY and Lynn together esocred of 15 runs of Harshal Pate.
+In that time SKY played his signature drive but also we to say Patel was very unlucy, RCB managed to drop cathces, misfileding, in fact those extras are the reason the might possibly have potentially caused RCB to lose the game.
+![droppped catches are sad](https://i.imgur.com/TsmbRUW.jpg){width=40%}
+
+Kohli brings back Chahal for the 10th over, I have always believed Chahal should bowl in the middle or death, he is brilliant there, do not waste him in the powerplay, he only gave 3 runs in the 10th over, which shifted back the momentum towards RCB, and immediately the next over they got the results, Jamieson got the wicket of Suryakumar, but before that, he just simply flicked one for a massive six which was just insane. RCB continued their hold with Siraj anna giving away only 4 runs the next over. The pressure built up caused another wicket to fall, with Lynn getting out at 49 to Sundar. Still don't understand why Kohli does not trust Sudnar in the powerplay, interestingly I had completely forgot he was even playing till that over.
+
+The match went from 30/1 at the end of 5 overs to 83/1 at the end of 9 overs, and then RCB had sort of a comeback to bring it down to 105/3 at the end of 13 overs. The game had chunks of over being controlled by both teams, with each teams getting ahead of each other for 4-5 overs and then the other team pulling it back.
+
+The immediate over was bowled by Chahal, Kishan for whom it was a profitable matchup unleashed all over Chahal, scoring 15 runs from it.Dan Christian who for me is the x-factor for RCB bowled the next over, he might not have had the ideal game, but he is going to win them multiple games in the future.
+Hardik Pandya absolutely smoked one viciously for four on the second ball of the 15th over, but then Dan pulled it back giving away only 8 runs in the over.
+
+Now the death, where the real game starts. Mumbai are well above average team with the bat throughout the game, but where they really win games, is the death, last season they were head and shoulders above every other team, I mean it wasn't even close, one of the main reason was Pollard and Hardik batting alot in those situations, with one of them there you would think fireworks, but to be that day, Harshal Patel was absolutely brilliant that over, not allowing the batsmen to do anything, Pandya still got cheeky and carved one for four, but at the end Harshal Patel got the better of him and got his wicket. For me this 16th over was the turning point.
+
+Siraj anna was brought in for his final over for the 17th over, at that moment I did not think it was the right move bowling him at death and he even got hit for a four in the first ball, at the end of 2 balls he had alredy gone for 6 runs and Pollard coming on strike you would think its all over for Siraj, but nope!! Siraj was brilliant, Pollard at the start of his innings struggles when the ball is pitch short on to hsi body, that's what Siraj did, one of them even hit the abdomen area of Pollard too. He gave away only 8 runs!!! Incredible growtth shown by Siraj anna, his 4 overs went for only 22 runs, no wickets but if one player can bowl with level of economy I wouldn't really care. The growth of Siraj has been brilliant to see.
+![Indranaga ka gunda](https://i.imgur.com/HfzA3eO.jpg){width=50%}
+
+This time RCB did not let go of the momentum they created at all, Harshal Patel came fo the 18th over, took a wicket of Ishan Kishan, it was an eventful one too, umpire gave it not out and ABD went straight away for a review, he was so so confident about it. Harshal gave away only 4 runs, absolutely brilliant stuff. Funny thing was, a catch was dropped the delivery before Kishan got out.
+
+Jamieson came back for the 19th over, Krunal smashed one, but it went right towards Kohli, maybe he couldn't gauge the speed at which it was coming, it went right through his hands to smashed his eyes, it got real red real quick, lucily it wasn't major injury. 3rd ball of the over went for a four, not only that, it was a no ball because RCB only had 3 fielders inside the circle, free hit did not do much damage for RCB, but for Krunal it did, because Jamieson nailed a yorker which broke Krunal's bat. The over went for 12 runs, but with previous 3 overs going only for 12 runs, it didn't affect them much. 
+
+As I say that, the previous over probably would've affected the result if not for one of the greatest death over bowling by Harshal Patel. Harshal Patel got the wicekts of Krunal as well as Pollard on the first two balls of the over which was absolutely incredible and it did not stop there. Marco Jansen the dubatant, was bamboozled by a yorker on the 4th ball of the final over. The final ball Mumbai tried to run 2 and got run out, so in short the last over of the innings RCB took 4 wickets and gave only 1 run.
+
+It was actually **first time ever that a bowler took a 5-fer against the migthy Mumbai** which is insane. It was brilliant bowling performance, especially by Harshal who made a major comeback, he had gone for 15 runs in his first over and ended up with figures of 4-0-27-5.
+![Harshal Patel comeback](https://i.imgur.com/pjtfiXg.jpg){width=50%}
+
+
+Now lets talk about the RCB innings which was super super interesting, we all knew Kohli was opening but without Devdutt Paddikal, it was going to be interesting, I always wanted to see how Sundar would do opening and RCB did exactly that, they sent him to open the innings.
+
+Boult bowling the first was insane, the amount of swing he was getting was absolutely incredible. Rohit dropped the second ball of the innings, it was something about captain's dropping catches. There even was 5 wides so 10 runs of the first over, not the ideal start for MI.
+
+But MI have the greatest bowler to have ever existed Jasprit Bumrah and he was brilliant, normally we see MI to bowl, bat poor in the first game of the season, one of the reason for poor bowling is normally Bumrah leaking runs, but this time it looked different, Bumrah was at his pure best here.
+
+Boult started the 3rd over, on the second ball of the over, Kohli played the classic drive which was like "ganga snana" for eyes, it was like all my sins were getting sucked out of me. But after that Boult was superb, gave away only 6 runs in the over.
+
+RCB were 21/0 at the end of 3 overs. It got really better in the next over.
+Marco Jansen was given the 4th over and Kohli pulled one for four immediately, no mercy at all, 14 runs came of that over and RCB at 35/0 at the end of 4 overs.
+
+Krunal was brought up, Mumbai kind of use himbrilliantly, but with Sundar having the profitable matchup, he was always going to go hard, he did but unfortunately that meant he got out first ball he faced, but not a huge deal because his whole role is to utilise powerplay, so hit out or get out.
+
+For the last over of powerplay, Boult was brought back for a third over, over started with a boundary, but he was brilliant after that, he brought out a knuckle ball to get wicket of Rajat Patidar, nobody had any idea Boult had a knuckle ball it was an awesome scene. At the end of powerplay 46/2, 5 runs ahead of MI, but the match still even.
+
+When matchup is in favour that is him bowling to left handers he is next level brilliant, which is the reason even when he goes for runs against lefties, his economy is kind of evened out. He bowled the 7th over which went for on ly 4 runs. Krunal is a very smart bowler I don't know why people kind of don't like him.
+![Jaisi jiski soch](https://i.imgur.com/tjvUu47.jpg){width=50%}
+
+Rahul Chahar came in for the 8th over and Maxwell loves leg spinner, yes they turn away from him, but it allows him to play the classic Maxi reverse sweep and he did do that the first ball itself, the over was super productive for RCB scoring 13 runs. After a few lean overs it was very essential at that stage.Any kind of leg spinner comes in and Maxwell is like:
+![chal phut](https://i.imgur.com/PwSlY5r.jpg){width=50%}
+
+
+Krunal came back for the 9th over and again as at his best, going for just 6 runs, that too because of a boundary on the last ball. 69/2 at the end of 9overs, i.e at the stage of strategic timeout MI were 83/1, 14 runs behind but with the brilliant big hitters RCB, game hadn't really slipped away. For the 10th over Jansen was brought and he was really good, not giving anything to batsman to pounce on, One ball actually suppposed to go for four, but Suryakumar did an absolutely incredible to stop that.
+So at the end of 10 overs, 75/2, 11 runs behind MI at that stage, they were 11 runs ahead at end of 5th over, t20 is the most finicky game of all.
+
+Krunal for the 11th over and Maxwell smoked one for massive six, now if you thought, nice! game is on, RCB can score more than 12 runs that over, nope! he gave only 3 runs after that, which meant only 9 runs even after the first ball being a six, incredible stuff. RCB are 84/2 at this stage.
+Maxwell and reverse sweeps are the true love story, you just can't keep them apart, he smashed first ball of Chahar for one six that way, 11 runs came of that way. RCB were coming back in the game superbly, but Sharma ji did the big brain move, the perfect utilisation of Bumrah, 1 in pp, 1 in middle and 2 at death, I don't think any other team can afford to do that with their best bowler, only DC is the team that comes to mind. Bumrah came, in his classic fashion, took wicket of Kohli, gave away only 4 runs, what else shall I say, this has happened too many times to require an explanation.
+
+
+Now RCB need 61 runs of 42 balls, even though a wicket just fell, RCB are well in the game and the next 2 overs were going to be crucial before death overs started.
+Chahar who had been below par at best till that point, bowled an absolutely incredible over giving away just 4 runs in the over, RCB had just scored 8 runs of the last 2 overs and even lost a wicket, if you thought horror was over, the newbie Jansen got the wicket of Maxwell at the very first ball of his over!!!. He got the wicket at last ball of the over too, crazy stuff was happening out there, with MI and RCB playing each other, it always happens. I know MI has won way more, but that doesn't mean the matches haven't been fun, they always have, no ball saga, Yuvraj jat trick sixes, Nehra going full bobble head to make Negi bowl, which backfired terribly, Pollard and Kishan almost taking them home last season scoring 89 in last 5 overs, Suryakumar Kohli staring contest, Kohli-ABD 200 run partnership, full thrills.
+![legendary game](https://i.imgur.com/OPh9EXA.jpg){width=50%}
+
+Chahar was brought back in for the 16th over and ABD started fireworks, 6 and 4 of the first 2 balls of the over, 15 runs came of the over.
+It all looked done for MI, until Bumrah came back next over, nailing those yorkers, taking wicket of Dan with a short one and going for only 5 runs.
+![abhi hum zinda hain](https://i.imgur.com/XgppZwU.jpg){width=40%}
+34 off 18 balls, with Boult, Bumrah and Jansen, looked tight, but there was the Master ABD for whom impossible is nothing.
+Boult is not the best death overs t20 bowler, even when he had the season to remember last time, he wasn't brilliant in death. His lenghts weren't as good but still. 15 runs came of his and the equation was now 19 of 12 with one over for Bumrah and one for Jansen.
+Now the first thought anyone would have it play out Bumrah, try to score 8-9 runs and smash the young guy, I would think that but ABD was in no mood of that, he scored off 11 runs in the first 4 balls itself. With Jamieson in for the last 2 balls the obvious thought should have been Jamieson will smash last two balls, what happens will happen, ABD should be on strike last over, but for some reason they ran on 5th ball which was a run out by the way, bringing back ABD to strike on last ball. They did get a single and ABD came back on strike the last over but still, you try to reduce the risks to as low values as possible.
+
+ABD ran a single on the first ball of the over, with only 7 runs required RCB could afford to do that and Harshal Patel being a more than an average batsman helps too, ABD showing faith boosted his confidence alot and they ran 2 the immediate ball after that bringing it down to 4 of 4 balls, the game was next level fun, a single brought back ABD on stike, its 3 of 3 balls. ABD hits, tries to run a double and gets run out! It was terrible running, reminiscent of the Chris Jordan run that caused the double super over last season against the same opposition. Siraj was on strike now with 2 of 2 required, perfect season opener, Siraj ran a single on a leg bye, more like they sneaked a run, but that's what you need to do in these crunch situation rigth.
+Harshal Patel just nudged on to win it for RCB. Harshal Patel scoring the winning runs was the perfect finish I needed.
+It was also a testemant of how important ABD is for RCB, I still wonder how they haven't won a single up even with him, he truly deserves it.
+![is chiz ke upar bone ka nahi](https://i.imgur.com/9V6rTLR.jpg){width=30%}
+
+
+Let us rap it off with some important, some fun and some interesting things that happened,
+Krunal flexing how smart of a bowler he is.
+Marco Jansen kind of announcing himself.
+Harshal Patel showing he can be the death over guy for RCB in these conditions.
+Chris Lynn ran his captain out, Maxwell almost ran his captain out, both debuting for their franchises too.
+Proving again and again that RCB V MI is the real thrilling game, not any other game.
+Swanny saying it was Maxwell's highest score in the last to years when he was at 10 was the funniest thing ever.
+Shahbaz Ahmad was called Nadeem by the announcer.
+Last year Saurabh Tiwary was brought in because Kishan was unavailable, he top scored MI lost, the same thing has happened here but with Lynn.
+Running between the wickets of RCB was incredible, it was one of the reason they were in the game the whole time.
+RCB really need to improve catching and fielding, they missed a lot of chances which is why even with terrible batting MI reached 158.
