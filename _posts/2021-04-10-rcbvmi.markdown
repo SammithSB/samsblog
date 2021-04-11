@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "RCB V MI, heart in mouth, always"
+title: "RCB V MI, not for the weak hearted"
 date: 2021-04-10 18:50:23 +0530
 categories: jekyll update
 ---
