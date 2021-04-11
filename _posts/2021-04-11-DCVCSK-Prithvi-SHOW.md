@@ -12,23 +12,29 @@ Now if we talk about teams, with the number of options CSK had there were too ma
 
 
 With no Rabada or Nortje, his was a relatively way weaker Delhi side than we are going to see in the future games, but in way shape or form they were a weak side, immense batting depth, power hitters, dashing openers as well as experienced spinners, this is what forms the best 11 of few of the teams, shows how strong a squad they have.
-
-
+<br>
 All those who worried about DC without Rabada and Nortje
+<br>
 ![Imgur](https://i.imgur.com/rLCF5YK.jpg)
-
+<br>
 One of the biggest uncertainities for DC this game was how would Chris Woakes bowl for them, because, he rarely plays the t20 format for England these days and he did not play a single game for England this winter, after bwling his first ball, he had bowled more balls for DC than for England this year. He was getting beautiful swing out there.
+<br>
 CSK openers looking how good Avesh and Woakes were:
+<br>
 ![Imgur](https://i.imgur.com/le66BFa.jpg)
+<br>
 
 In fact the first 6 overs of the innings were extremely eventful, with lots and lots of stuff happening. The first over started with Woakes beating the outside edge of Gaikwad and in reply him with as sweet a drive you can imagine. Only 5 runs of the over.
 Faf Du Plesis was the highest run scorer for CSK last season, how he plays was always going to be crucial for them, but unfortunately as soon as Gaikwad gave strike to Faf in the second over, Avesh Khan got the better of him, it was a much fuller close to 140ks delivery and was almost a plumb in front. 
-# add imaga
+<br>
 Avesh Khan while coming in to bowl today:
+<br>
 ![Imgur](https://i.imgur.com/RfAxiGs.jpg)
+<br>
 To sprinkle salt on those wounds, Gaikwad got out the first ball of the third over, Woakes made proper use of the swing he was getting bowling proper test match lengths, he was rewarded for that. Last season memories started floating back, but this time they have Raina and Moeen, way better middle order batsmen than they had last time around. It showed too, with Moeen and Raina counterattacking Avesh Khan and Ashwin even though Ashwin was not the matchup which was in favor of them, extracting 19 runs of the 2 overs. They were ar 30/2 at the end of 5 overs. Final over was bowled by Tom Curran, the man has the worst economy rate for any bowler in IPL, which is insane, but he was superb in the powerplay giving away just 3 runs. CSK were strangled at 33/2 by the end of powerplay. Not looking good for CSK, but one nice thing was, Raina and Moeen had shown as long as they are there, Ashwin was not going to be a threat for them.
+<br>
 ![Imgur](https://i.imgur.com/EytDoCz.jpg)
-
+<br>
 Even though they had a bad start, CSK were extremely productive in the middle overs, the portion of the game which costed them most of the matches last season. They scored 103 in between 7th and the 15th over which is unreal!!!
 Ashwin was torn apart by Moeen and Raina, with 9th over going for 18 runs, yes he got the wicket of Moeen which was extremely crucial at that stage, but still it was a below average performance and it happens and I am sure he will do way better things for DC than this. Amit Mishra had bowled his first two overs relatively well going for only 10 runs, but Raina was in no mood to stop, he scored 14 runs of the first 3 balls of th 12th over of the innings. Things were looking pretty well for CSK and it got even better when Stoinis came in, one of the balls slipped and came in over waist length but it was also dispatched for a six by Rayadu, the free hit was a leg bye which went for four. The last ball was pulled away for a six by Raina which brought his 50!!!
 Extremely contrasting performance in powerplay and middle overs by CSK:
@@ -48,7 +54,6 @@ CSK ended up at 188/7 which was kind of below after looking at CSK's middle orde
 Now when the DC innings everyone, it was going to be very very interesting, Prithvi Shaw was coming in after a HULK level domestic season where he flexed how good a player he is, he probably also worked and adjusted the error in his style that was causing him to get out cheap at IPL and the international level. But it was not going to be easy given the history of Chahar and Shaw, Shaw had scored 38 runs of 39 balls and had got out 5 times to Chahar before this encounter. But he looked way more comfortable than he ever did. Interesting thing was that last season before the start of a horrid run for Shaw he had scored 66(41) which ensured a win for DC. 
 There wasn't really much to talk about powerplay here, it was just Shaw manhandling CSK bowlers, he smoked the "LORD" Thakur for 3 consecutive boundaries in the 5th over, which was heavily profitable for DC as 17 runs came off of it.
 One other interesting as well as super cool thing was, last season when Shikhar Dhawan scored his first IPL 100 which was against CSK, he had scored one six, that too to Sam Curran it was just him extending his hands and hitting straight above bowlers head, in the 3rd over, he smashed a six which looked very very similar, only difference was Dhawan had his legs wide apart last season.
-# add image
 Six from IPL 2020
 <br>
 ![Imgur](https://i.imgur.com/A00fgSF.jpg)
