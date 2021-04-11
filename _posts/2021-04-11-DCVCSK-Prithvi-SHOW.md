@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "DC V CSK, It was all about Prithvi Show"
-date: 2021-04-10 18:50:23 +0530
+date: 2021-04-11 18:50:23 +0530
 categories: jekyll update
 ---
 
