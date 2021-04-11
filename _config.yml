@@ -20,7 +20,7 @@
 
 title: Samsblog
 author: Sammith S Bharadwaj
-email: sammithsb@gmail.com
+
 description: >- # this means to ignore newlines until "baseurl:"
   I write cricket related blogs over here, going into extreme level details because I love doing that.
 baseurl: "/samsblog" # the subpath of your site, e.g. /blog
