@@ -8,13 +8,12 @@ categories: jekyll update
 Wankhede is one of the most incredible cricket pitches to bat on, so when Pant decided to choose to field after winning the toss, it came as surprise to nobody.
 Now if we talk about teams, with the number of options CSK had there were too many combinations of teams to keep track of, but the one they chose to field was a typical Dhoni 11, choosing players on whom Dhoni has obssesive level of faith in. This game was also the return of Mr. IPL, Suresh Raina which is always nice to see.
 
-# add image
-This was all of my friend
-![Imgur](https://i.imgur.com/x8p69Vk.jpg)
+
+
 
 With no Rabada or Nortje, his was a relatively way weaker Delhi side than we are going to see in the future games, but in way shape or form they were a weak side, immense batting depth, power hitters, dashing openers as well as experienced spinners, this is what forms the best 11 of few of the teams, shows how strong a squad they have.
 
-# add image
+
 All those who worried about DC without Rabada and Nortje
 ![Imgur](https://i.imgur.com/rLCF5YK.jpg)
 
