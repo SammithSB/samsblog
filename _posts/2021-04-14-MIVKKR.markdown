@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "MI V KKR, leeson on how not to collapse"
+title: "MI V KKR, a lesson on how not to collapse"
 date: 2021-04-14 00:12:23 +0530
 categories: jekyll update
 ---
